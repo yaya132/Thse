@@ -1,6 +1,6 @@
 # Thse
 
-最新地址：[Thse]((https://tzdaohang.com/sites/390.html)
+最新地址：[Thse](https://tzdaohang.com/sites/390.html)
 
 ## 简介
 
